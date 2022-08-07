@@ -1,0 +1,2 @@
+# upturne
+upturne saves on the consumption of rebar and concrete by redesigning the metal structure and industrial sheds. This type of optimization is done without the stability of the structure's skeleton to simplify and improve performance. This reduction and materials are done without changing the architectural plan of the project. The stability of the structure is achieved according to the regulations of the valid international and ABA regulations.
